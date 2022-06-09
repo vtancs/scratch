@@ -1,4 +1,4 @@
 # Scratch Projects
 
-## Natalia Osipova - Scratch Project
+## Natalia Osipova
 https://scratch.mit.edu/projects/669056358/
